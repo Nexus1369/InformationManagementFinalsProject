@@ -1,1 +1,5 @@
 # InformationManagementFinalsProject
+
+
+
+LETS GOOOOOOOOOOOOOO
